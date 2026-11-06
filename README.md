@@ -28,6 +28,12 @@ CLIPS!!!!
 [Pony](https://github.com/sinfulribbons) thinks: fat izzy-chan got into the FROSTING..
 
 
+[STOP THROWING ME ACROSS THE HA](https://github.com/DoctorFunkbeat)thinks: Hi I’m Miku and where is rin
+
+
+[Pony #2](https://github.com/sinfulribbons) thinks: up yo BUTTT
+
+
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
 MEMORIES!!!
