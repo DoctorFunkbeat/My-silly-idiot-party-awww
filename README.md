@@ -45,5 +45,9 @@ MEMORIES!!!
 <img width="436" height="556" alt="IMG_1449" src="https://github.com/user-attachments/assets/0a64be88-dcb7-4224-992d-54a4f565ad6a" />
 <img width="991" height="528" alt="IMG_2167" src="https://github.com/user-attachments/assets/a0279e9a-270d-417d-b52e-e8bbf8c39728" />
 <img width="519" height="443" alt="IMG_3893" src="https://github.com/user-attachments/assets/06976368-c8f6-48f6-bf39-6d91c3836d13" />
+<img width="846" height="613" alt="IMG_5595" src="https://github.com/user-attachments/assets/0ba9dfa5-d542-43d5-a0c2-10c1bb95166d" />
+<img width="1290" height="401" alt="IMG_5594" src="https://github.com/user-attachments/assets/008ee582-3db5-4f76-ab5a-9c77963a9e64" />
+<img width="1038" height="249" alt="IMG_5593" src="https://github.com/user-attachments/assets/17b0b447-35d8-42fe-a475-672f26f04f58" />
+
 
 
