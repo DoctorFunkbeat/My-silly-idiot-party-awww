@@ -14,8 +14,6 @@ IDIOT Party members!!! /j
 [Kim](https://github.com/jiraiki)
 ✦
 [simon](https://github.com/BloomingCrown)
-✦
-[Zip](https://github.com/AngelsCloverr)
 
 
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
@@ -55,6 +53,7 @@ MEMORIES!!!
 <img width="717" height="556" alt="IMG_5597" src="https://github.com/user-attachments/assets/9ff9235d-242b-4e77-b5ab-723a6d6be35d" />
 <img width="704" height="684" alt="IMG_5779" src="https://github.com/user-attachments/assets/ca47868b-6f2e-41c0-84ce-6ccec416e422" />
 <img width="645" height="1398" alt="IMG_5777" src="https://github.com/user-attachments/assets/fca4ce1e-1c64-45c8-80ff-fae72f437c08" />
+
 
 
 
