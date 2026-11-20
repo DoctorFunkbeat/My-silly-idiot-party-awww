@@ -20,6 +20,8 @@ IDIOT Party members!!! /j
 [Dino](https://github.com/tunafishyy)
 ✦
 [katsu](https://github.com/sakasamagirlfeeling)
+✦
+[Zip](https://github.com/AngelsCloverr)
 
 
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
