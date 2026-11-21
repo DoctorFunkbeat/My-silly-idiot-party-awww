@@ -63,6 +63,13 @@ MEMORIES!!!
 <img width="717" height="556" alt="IMG_5597" src="https://github.com/user-attachments/assets/9ff9235d-242b-4e77-b5ab-723a6d6be35d" />
 <img width="704" height="684" alt="IMG_5779" src="https://github.com/user-attachments/assets/ca47868b-6f2e-41c0-84ce-6ccec416e422" />
 <img width="645" height="1398" alt="IMG_5777" src="https://github.com/user-attachments/assets/fca4ce1e-1c64-45c8-80ff-fae72f437c08" />
+<img width="677" height="448" alt="IMG_6423" src="https://github.com/user-attachments/assets/ddaa1776-5c30-4f3a-8a90-4580c3a4ecfa" />
+<img width="606" height="420" alt="IMG_6425" src="https://github.com/user-attachments/assets/dae99b7b-b6df-46fd-83bd-39ecfb022e6b" />
+<img width="847" height="653" alt="IMG_6427" src="https://github.com/user-attachments/assets/b31bfc3b-c467-4cac-b2f7-e97b50bf8dd8" />
+<img width="880" height="683" alt="IMG_6487" src="https://github.com/user-attachments/assets/9eae1775-c160-437b-9478-f54943ce302b" />
+<img width="847" height="674" alt="IMG_6488" src="https://github.com/user-attachments/assets/be603e53-4f2a-413c-a5b1-81ad11b3ebec" />
+<img width="645" height="1398" alt="IMG_6492" src="https://github.com/user-attachments/assets/99ae0270-6add-4e52-9a37-6c16baa5afbc" />
+<img width="607" height="390" alt="IMG_6497" src="https://github.com/user-attachments/assets/e303af4d-f72f-43df-8a64-88aadf742c49" />
 
 
 
