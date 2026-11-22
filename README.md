@@ -47,7 +47,7 @@ CLIPS!!!!
 
 [panty C+H](https://github.com/falcon-ft) aw man i wish there was a pregnant man emoji on ponytown
 
-[🎁’d !! ,, tysm!](https://github.com/hamornizingverses)That ain’t emu otori that ema otiri
+[🎁’d !! ,, tysm!](https://github.com/harmornizingverses)That ain’t emu otori that ema otiri
 
 
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
